@@ -20,4 +20,3 @@ oioioioio
 
 pizdec_ti_mraz
 
-ahahahhahahahaahahahahahhahahahaahahahahahhahahahaahahahahahhahahahaahahahahahhahahahaahahahahahhahahahaahah
